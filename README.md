@@ -1,2 +1,1 @@
-# Grow-A-Garden-Macro
-Yark spade, tazer, rorvzzz, nasa adn, etc
+DISCORD.GG/gagmacros 
